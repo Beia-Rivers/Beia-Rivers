@@ -4,6 +4,6 @@
 * 🌱 I'm currently exploring (AR/VR) technologies such as Snapchat Lens Studio, Spark and other 3D software.
 * 💞️ Passionate about personal and societal well-being, creative exploration, and trying my best
 
-Let's be friends 🍊
+**Let's be friends** 🍊
 * Portfolio: https://www.beiarivers.co/
 * LinkedIn: https://www.linkedin.com/in/beia-rivers/
